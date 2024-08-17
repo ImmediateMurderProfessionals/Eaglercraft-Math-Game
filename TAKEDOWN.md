@@ -9,3 +9,5 @@ How to ask me to take your stuff down: <br>
 5. Post it. <br>
 
 I should reply within a day. <br>
+
+Alternatively, you could also submit a DMCA complaint or DM me on Discord (I'm @bombcraft on Discord)
